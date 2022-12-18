@@ -4,4 +4,4 @@
 - 📫 How to reach me:
       - I am studying in Zhejiang University-University of Illinois at Urbana-Champaign Institute 
       - My phone number is +86 13588853165
-- Due to my interest in electronic devices, I have chosen electrical engineering as my major in college.
+- Due to my interest in electronic devices, I have chosen Electrical Engineering as my major in Zhejiang University.
